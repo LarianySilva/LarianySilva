@@ -1,4 +1,4 @@
-# (▀̿Ĺ̯▀̿ ̿) Agente 7-Palmos
+# 🌟 Agente 7-Palmos 🌟
 **`Apreciadora de Café`**
 
 ### _Lariany aqui..._
